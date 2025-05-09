@@ -20,7 +20,7 @@ Before my journey into tech, I worked in caregiving and customer service, where 
 
 ## 📫 Let's Connect
 - 📧 roselin.t.m@gmail.com  
-- 💼 [LinkedIn](https://www.linkedin.com/in/roselin-trinidad-57210026b/) *(update with your link)*
+- 💼 [LinkedIn](https://www.linkedin.com/in/roselin-trinidad-57210026b/)
 
 Thanks for visiting my profile!
 
